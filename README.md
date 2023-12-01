@@ -1,3 +1,4 @@
+- Psicóloga Crp nº 08/24390.
 - 👋 Olá, sou a Isabella, Tech recruiter certificada pela @devskiller sob nº3QLNKvHwlkvrrII79tD13S;
 - 👀 O meu interesse principal é encontrar candidatos que queiram fazer à diferença dentro de uma empresa(nessa caso à nossa rsrs...);
 - 🌱 Atualmente estou aprendendo muito sobre gestão organizacional e de pessoas;
